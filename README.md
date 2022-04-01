@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Timinesh
+- 👀 I’m interested in coding obviously
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on your face to make it look better
+- 📫 How to reach me well don't reach me 'cause I hate you
